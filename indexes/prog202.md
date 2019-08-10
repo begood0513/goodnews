@@ -1,56 +1,56 @@
-#### 由于频繁封锁，请参考 [手把手翻墙教程](https://github.com/gfw-breaker/guides/wiki/)，安卓用户请使用 [网门](https://github.com/gfw-breaker/bn-android/blob/master/ogate.md?t=08110332) 或 [禁闻聚合](https://github.com/gfw-breaker/bn-android) 免翻墙观看热门YouTube频道 
+#### 由于频繁封锁，请参考 [手把手翻墙教程](https://github.com/gfw-breaker/guides/wiki/)，安卓用户请使用 [网门](https://github.com/gfw-breaker/bn-android/blob/master/ogate.md?t=08110348) 或 [禁闻聚合](https://github.com/gfw-breaker/bn-android) 免翻墙观看热门YouTube频道 
 
-#### [法轮功真相](../../../../basic/blob/master/README.md?t=08110332) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧二十周年报告](https://github.com/gfw-breaker/mh-reports/blob/master/README.md?t=08110332) &nbsp;&nbsp;|&nbsp;&nbsp;[明慧期刊](https://github.com/gfw-breaker/mh-qikan) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧海外之窗](https://github.com/gfw-breaker/mh-news/blob/master/README.md?t=08110332) &nbsp;&nbsp;|&nbsp;&nbsp; [神韵特别报道](https://github.com/gfw-breaker/mh-news/blob/master/shenyun.md?t=08110332) 
+#### [法轮功真相](../../../../basic/blob/master/README.md?t=08110348) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧二十周年报告](https://github.com/gfw-breaker/mh-reports/blob/master/README.md?t=08110348) &nbsp;&nbsp;|&nbsp;&nbsp;[明慧期刊](https://github.com/gfw-breaker/mh-qikan) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧海外之窗](https://github.com/gfw-breaker/mh-news/blob/master/README.md?t=08110348) &nbsp;&nbsp;|&nbsp;&nbsp; [神韵特别报道](https://github.com/gfw-breaker/mh-news/blob/master/shenyun.md?t=08110348) 
 
-#### [蒙面歹徒开枪扫射 巴西俱乐部5死4伤](../pages/prog202/a102641949.md?t=08110332) 
+#### [加拿大“海天缆车”疑遭切断电缆 数十车厢坠毁](../pages/prog202/a102641960.md?t=08110348) 
 
-
-#### [【新闻周刊】人民币破7引连锁效应 川习会协议破裂](../pages/prog202/a102641883.md?t=08110332) 
-
-#### [美中贸易战 人民币破7 川普：不会贬值美元](../pages/prog202/a102641869.md?t=08110332) 
+#### [蒙面歹徒开枪扫射 巴西俱乐部5死4伤](../pages/prog202/a102641949.md?t=08110348) 
 
 
-#### [朝鲜再试射导弹  川普披露金正恩来信](../pages/prog202/a102641740.md?t=08110332) 
+#### [【新闻周刊】人民币破7引连锁效应 川习会协议破裂](../pages/prog202/a102641883.md?t=08110348) 
 
-#### [测试火箭爆炸？俄基地酿5死3伤 辐射值上升](../pages/prog202/a102641402.md?t=08110332) 
-
-#### [4天2起 丹麦首都警局外发生爆炸](../pages/prog202/a102641519.md?t=08110332) 
-
-#### [雨季暴雨 缅甸河川溃堤土石流酿13死](../pages/prog202/a102641464.md?t=08110332) 
-
-#### [尖峰时刻大停电 英国交通大乱影响近百万人](../pages/prog202/a102641413.md?t=08110332) 
-
-#### [韩美联合军演 朝鲜17天内第5次发射飞弹](../pages/prog202/a102641344.md?t=08110332) 
+#### [美中贸易战 人民币破7 川普：不会贬值美元](../pages/prog202/a102641869.md?t=08110348) 
 
 
+#### [朝鲜再试射导弹  川普披露金正恩来信](../pages/prog202/a102641740.md?t=08110348) 
 
-#### [【禁闻】澳众议员警告 中共威胁如纳粹](../pages/prog202/a102641227.md?t=08110332) 
+#### [测试火箭爆炸？俄基地酿5死3伤 辐射值上升](../pages/prog202/a102641402.md?t=08110348) 
 
-#### [8月10日时事拼盘](../pages/prog202/a102641210.md?t=08110332) 
+#### [4天2起 丹麦首都警局外发生爆炸](../pages/prog202/a102641519.md?t=08110348) 
 
-#### [脱欧前英经济受冲击 英欧仍未重启谈判](../pages/prog202/a102641162.md?t=08110332) 
+#### [雨季暴雨 缅甸河川溃堤土石流酿13死](../pages/prog202/a102641464.md?t=08110348) 
 
-#### [水下机器人跟拍象鲨 首揭9米巨鲨习性](../pages/prog202/a102641148.md?t=08110332) 
+#### [尖峰时刻大停电 英国交通大乱影响近百万人](../pages/prog202/a102641413.md?t=08110348) 
 
-
-#### [涉1MDB挪用资金案 高盛17名董事被起诉](../pages/prog202/a102641003.md?t=08110332) 
-
-#### [美国防部长访问韩国 讨论区域安全等议题](../pages/prog202/a102640996.md?t=08110332) 
+#### [韩美联合军演 朝鲜17天内第5次发射飞弹](../pages/prog202/a102641344.md?t=08110348) 
 
 
-#### [8月8日国际重要讯息](../pages/prog202/a102640843.md?t=08110332) 
+
+#### [【禁闻】澳众议员警告 中共威胁如纳粹](../pages/prog202/a102641227.md?t=08110348) 
+
+#### [8月10日时事拼盘](../pages/prog202/a102641210.md?t=08110348) 
+
+#### [脱欧前英经济受冲击 英欧仍未重启谈判](../pages/prog202/a102641162.md?t=08110348) 
+
+#### [水下机器人跟拍象鲨 首揭9米巨鲨习性](../pages/prog202/a102641148.md?t=08110348) 
 
 
-#### [日出口管制新规实施 左右日韩贸易走向](../pages/prog202/a102640492.md?t=08110332) 
+#### [涉1MDB挪用资金案 高盛17名董事被起诉](../pages/prog202/a102641003.md?t=08110348) 
 
-#### [8月8日时事拼盘](../pages/prog202/a102640439.md?t=08110332) 
+#### [美国防部长访问韩国 讨论区域安全等议题](../pages/prog202/a102640996.md?t=08110348) 
 
 
-#### [美国土耳其建立安全区 叙利亚坚决反对](../pages/prog202/a102640390.md?t=08110332) 
+#### [8月8日国际重要讯息](../pages/prog202/a102640843.md?t=08110348) 
 
-#### [澳安全委主席:西方错判中共 如法国错判纳粹](../pages/prog202/a102640330.md?t=08110332) 
 
-#### [火眼报告：APT41受中共指使搞网络间谍活动](../pages/prog202/a102640304.md?t=08110332) 
+#### [日出口管制新规实施 左右日韩贸易走向](../pages/prog202/a102640492.md?t=08110348) 
 
-#### [澳洲议员警告：用清澈的眼光看中共动机](../pages/prog202/a102640314.md?t=08110332) 
+#### [8月8日时事拼盘](../pages/prog202/a102640439.md?t=08110348) 
+
+
+#### [美国土耳其建立安全区 叙利亚坚决反对](../pages/prog202/a102640390.md?t=08110348) 
+
+#### [澳安全委主席:西方错判中共 如法国错判纳粹](../pages/prog202/a102640330.md?t=08110348) 
+
+#### [火眼报告：APT41受中共指使搞网络间谍活动](../pages/prog202/a102640304.md?t=08110348) 
 
