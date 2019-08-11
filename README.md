@@ -1,6 +1,6 @@
 ### 禁闻聚合【新闻、历史、评论等】
 
-#### 经典图书 &nbsp;-&nbsp;-&nbsp;-&nbsp;-&nbsp; [九评共产党](https://github.com/tiger2014/9ping.md) &nbsp;|&nbsp; [解体党文化](https://github.com/tiger2014/jtdwh.md)  &nbsp;|&nbsp; [共产主义的终极目的](https://github.com/tiger2014/gczydzjmd.md) &nbsp;|&nbsp; [魔鬼在统治我们的世界](https://github.com/tiger2014/mgztzwmdsj.md) 
+#### 经典图书 &nbsp;-&nbsp;-&nbsp;-&nbsp;-&nbsp; [九评共产党](https://github.com/begood0513/9ping.md) &nbsp;|&nbsp; [解体党文化](https://github.com/begood0513/jtdwh.md)  &nbsp;|&nbsp; [共产主义的终极目的](https://github.com/begood0513/gczydzjmd.md) &nbsp;|&nbsp; [魔鬼在统治我们的世界](https://github.com/begood0513/mgztzwmdsj.md) 
 
 #### 大纪元新闻网 &nbsp;-&nbsp; [头条集锦](indexes/nf4514.md?t=08112316) &nbsp;|&nbsp; [港澳新闻](indexes/nsc415.md?t=08112316)  &nbsp;|&nbsp; [大陆新闻](indexes/nsc413.md?t=08112316) &nbsp;|&nbsp; [美国新闻](indexes/nsc412.md?t=08112316) &nbsp;|&nbsp; [国际新闻](indexes/nsc418.md?t=08112316) &nbsp;|&nbsp; [专栏文集](indexes/nsc423.md?t=08112316) &nbsp;|&nbsp; [纪元社论](indexes/nsc422.md?t=08112316) &nbsp;|&nbsp; [纪元特稿](indexes/nsc424.md?t=08112316) 
 
