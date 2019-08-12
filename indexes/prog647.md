@@ -1,64 +1,64 @@
-#### 由于频繁封锁，请参考 [手把手翻墙教程](https://github.com/gfw-breaker/guides/wiki/)，安卓用户请使用 [网门](https://github.com/gfw-breaker/bn-android/blob/master/ogate.md?t=08121648) 或 [禁闻聚合](https://github.com/gfw-breaker/bn-android) 免翻墙观看热门YouTube频道 
+#### 由于频繁封锁，请参考 [手把手翻墙教程](https://github.com/gfw-breaker/guides/wiki/)，安卓用户请使用 [网门](https://github.com/gfw-breaker/bn-android/blob/master/ogate.md?t=08121700) 或 [禁闻聚合](https://github.com/gfw-breaker/bn-android) 免翻墙观看热门YouTube频道 
 
-#### [法轮功真相](../../../../basic/blob/master/README.md?t=08121648) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧二十周年报告](https://github.com/gfw-breaker/mh-reports/blob/master/README.md?t=08121648) &nbsp;&nbsp;|&nbsp;&nbsp;[明慧期刊](https://github.com/gfw-breaker/mh-qikan) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧海外之窗](https://github.com/gfw-breaker/mh-news/blob/master/README.md?t=08121648) &nbsp;&nbsp;|&nbsp;&nbsp; [神韵特别报道](https://github.com/gfw-breaker/mh-news/blob/master/shenyun.md?t=08121648) 
+#### [法轮功真相](../../../../basic/blob/master/README.md?t=08121700) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧二十周年报告](https://github.com/gfw-breaker/mh-reports/blob/master/README.md?t=08121700) &nbsp;&nbsp;|&nbsp;&nbsp;[明慧期刊](https://github.com/gfw-breaker/mh-qikan) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧海外之窗](https://github.com/gfw-breaker/mh-news/blob/master/README.md?t=08121700) &nbsp;&nbsp;|&nbsp;&nbsp; [神韵特别报道](https://github.com/gfw-breaker/mh-news/blob/master/shenyun.md?t=08121700) 
 
-#### [不敬心书写佛经的后果](../pages/prog647/a102642368.md?t=08121648) 
+#### [不敬心书写佛经的后果](../pages/prog647/a102642368.md?t=08121700) 
 
-#### [洁身拒色 神明赐福](../pages/prog647/a102642363.md?t=08121648) 
+#### [洁身拒色 神明赐福](../pages/prog647/a102642363.md?t=08121700) 
 
-#### [慎勿将身轻许人](../pages/prog647/a102642222.md?t=08121648) 
+#### [慎勿将身轻许人](../pages/prog647/a102642222.md?t=08121700) 
 
-#### [为救百姓 这些帝王的所为令天地动容](../pages/prog647/a102642052.md?t=08121648) 
+#### [为救百姓 这些帝王的所为令天地动容](../pages/prog647/a102642052.md?t=08121700) 
 
-#### [【命理篇】为什么行好运反而身亡？](../pages/prog647/a102641592.md?t=08121648) 
+#### [【命理篇】为什么行好运反而身亡？](../pages/prog647/a102641592.md?t=08121700) 
 
-#### [【家教珍事】王猛知子 为子求田不求官](../pages/prog647/a102641580.md?t=08121648) 
+#### [【家教珍事】王猛知子 为子求田不求官](../pages/prog647/a102641580.md?t=08121700) 
 
-#### [【命理篇】怎样能从失败的婚姻走出来？](../pages/prog647/a102640802.md?t=08121648) 
+#### [【命理篇】怎样能从失败的婚姻走出来？](../pages/prog647/a102640802.md?t=08121700) 
 
-#### [《笑谈风云》第23集 天下一统（1）](../pages/prog647/a102640791.md?t=08121648) 
+#### [《笑谈风云》第23集 天下一统（1）](../pages/prog647/a102640791.md?t=08121700) 
 
-#### [看一个字 竟知人生祸福和天下大势](../pages/prog647/a102640137.md?t=08121648) 
+#### [看一个字 竟知人生祸福和天下大势](../pages/prog647/a102640137.md?t=08121700) 
 
-#### [【家教珍事】邝埜跪读父信 敬受父教](../pages/prog647/a102640131.md?t=08121648) 
+#### [【家教珍事】邝埜跪读父信 敬受父教](../pages/prog647/a102640131.md?t=08121700) 
 
-#### [不敬心书写佛经的后果](../pages/prog647/a102639970.md?t=08121648) 
+#### [不敬心书写佛经的后果](../pages/prog647/a102639970.md?t=08121700) 
 
-#### [立秋天转凉 滋阴养肺保健康](../pages/prog647/a102639236.md?t=08121648) 
+#### [立秋天转凉 滋阴养肺保健康](../pages/prog647/a102639236.md?t=08121700) 
 
-#### [不欺暗室 拒色及第的读书人](../pages/prog647/a102639223.md?t=08121648) 
+#### [不欺暗室 拒色及第的读书人](../pages/prog647/a102639223.md?t=08121700) 
 
-#### [《笑谈风云》第22集 窃符救赵（3）](../pages/prog647/a102639213.md?t=08121648) 
+#### [《笑谈风云》第22集 窃符救赵（3）](../pages/prog647/a102639213.md?t=08121700) 
 
-#### [【文史】汉武帝恩威并施 保障丝绸之路通畅](../pages/prog647/a102638665.md?t=08121648) 
+#### [【文史】汉武帝恩威并施 保障丝绸之路通畅](../pages/prog647/a102638665.md?t=08121700) 
 
-#### [《笑谈风云》第22集 窃符救赵（2）](../pages/prog647/a102638635.md?t=08121648) 
+#### [《笑谈风云》第22集 窃符救赵（2）](../pages/prog647/a102638635.md?t=08121700) 
 
-#### [悬壶济世（二）](../pages/prog647/a102637876.md?t=08121648) 
+#### [悬壶济世（二）](../pages/prog647/a102637876.md?t=08121700) 
 
-#### [悬壶济世（一）](../pages/prog647/a102637864.md?t=08121648) 
+#### [悬壶济世（一）](../pages/prog647/a102637864.md?t=08121700) 
 
-#### [亲亲相隐（上）](../pages/prog647/a102637311.md?t=08121648) 
+#### [亲亲相隐（上）](../pages/prog647/a102637311.md?t=08121700) 
 
-#### [王母赐仙桃 桃核传千载](../pages/prog647/a102636523.md?t=08121648) 
+#### [王母赐仙桃 桃核传千载](../pages/prog647/a102636523.md?t=08121700) 
 
-#### [【文史】明成祖五次亲征漠北 武功赫赫](../pages/prog647/a102636519.md?t=08121648) 
+#### [【文史】明成祖五次亲征漠北 武功赫赫](../pages/prog647/a102636519.md?t=08121700) 
 
-#### [行善桥](../pages/prog647/a102636040.md?t=08121648) 
+#### [行善桥](../pages/prog647/a102636040.md?t=08121700) 
 
-#### [《笑谈风云》第22集 窃符救赵（1）](../pages/prog647/a102636037.md?t=08121648) 
+#### [《笑谈风云》第22集 窃符救赵（1）](../pages/prog647/a102636037.md?t=08121700) 
 
-#### [历史上真有“八戒” 留下火中涅盘的神迹](../pages/prog647/a102635944.md?t=08121648) 
+#### [历史上真有“八戒” 留下火中涅盘的神迹](../pages/prog647/a102635944.md?t=08121700) 
 
-#### [沉寂千年的地下军团：秦始皇陵之谜（上）](../pages/prog647/a102635362.md?t=08121648) 
+#### [沉寂千年的地下军团：秦始皇陵之谜（上）](../pages/prog647/a102635362.md?t=08121700) 
 
-#### [【文史】汉武帝通西域 开启丝绸之路](../pages/prog647/a102635355.md?t=08121648) 
+#### [【文史】汉武帝通西域 开启丝绸之路](../pages/prog647/a102635355.md?t=08121700) 
 
-#### [华佗的故事](../pages/prog647/a102632432.md?t=08121648) 
+#### [华佗的故事](../pages/prog647/a102632432.md?t=08121700) 
 
-#### [与他坐谈一宿 白发也能变黑](../pages/prog647/a102634645.md?t=08121648) 
+#### [与他坐谈一宿 白发也能变黑](../pages/prog647/a102634645.md?t=08121700) 
 
-#### [小小走卒竭尽心力 知恩图报](../pages/prog647/a102634508.md?t=08121648) 
+#### [小小走卒竭尽心力 知恩图报](../pages/prog647/a102634508.md?t=08121700) 
 
-#### [《幼学》故事（32）黄帝规制汉服](../pages/prog647/a102634503.md?t=08121648) 
+#### [《幼学》故事（32）黄帝规制汉服](../pages/prog647/a102634503.md?t=08121700) 
 
