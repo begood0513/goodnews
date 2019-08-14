@@ -1,7 +1,5 @@
 ### 禁闻聚合【新闻、历史、评论等】
 
-#### 经典图书 &nbsp;-&nbsp;-&nbsp;-&nbsp;-&nbsp; [九评共产党](../../../9ping.md) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md) 
-
 #### 大纪元新闻网 &nbsp;-&nbsp; [头条集锦](indexes/E头条集锦.md?t=08140403) &nbsp;|&nbsp; [港澳新闻](indexes/E港澳新闻.md?t=08140403)  &nbsp;|&nbsp; [大陆新闻](indexes/E大陆新闻.md?t=08140403) &nbsp;|&nbsp; [美国新闻](indexes/E美国新闻.md?t=08140403) &nbsp;|&nbsp; [国际新闻](indexes/E国际新闻.md?t=08140403) &nbsp;|&nbsp; [专栏文集](indexes/E专栏文集.md?t=08140403) &nbsp;|&nbsp; [纪元社论](indexes/E纪元社论.md?t=08140403) &nbsp;|&nbsp; [纪元特稿](indexes/E纪元特稿.md?t=08140403) 
 
 #### 新唐人电视台 &nbsp;-&nbsp; [中国时局](indexes/N中国时局.md?t=08140403) &nbsp;|&nbsp; [共产党百年真相](indexes/N共产党百年真相.md?t=08140403) &nbsp;|&nbsp; [中共杀人历史](indexes/N中共杀人历史.md?t=08140403)  &nbsp;|&nbsp; [法轮功专题](indexes/N法轮功专题.md?t=08140403) &nbsp;|&nbsp; [文史漫步](indexes/N文史漫步.md?t=08140403) &nbsp;|&nbsp; [大陆新闻](indexes/N大陆新闻.md?t=08140403) &nbsp;|&nbsp; [美国新闻](indexes/N美国新闻.md?t=08140403)
