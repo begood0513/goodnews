@@ -1,6 +1,6 @@
 ### 禁闻聚合【新闻、历史、评论等】
 
-#### 经典图书 &nbsp;-&nbsp;-&nbsp;-&nbsp;-&nbsp; [九评共产党](https://github.com/begood0513/9ping.md) &nbsp;|&nbsp; [解体党文化](https://github.com/begood0513/jtdwh.md)  &nbsp;|&nbsp; [共产主义的终极目的](https://github.com/begood0513/gczydzjmd.md) &nbsp;|&nbsp; [魔鬼在统治我们的世界](https://github.com/begood0513/mgztzwmdsj.md) 
+#### 经典图书 &nbsp;-&nbsp;-&nbsp;-&nbsp;-&nbsp; [九评共产党](../../../../9ping.md/blob/master/README.md) &nbsp;|&nbsp; [解体党文化](https://github.com/begood0513/jtdwh.md)  &nbsp;|&nbsp; [共产主义的终极目的](https://github.com/begood0513/gczydzjmd.md) &nbsp;|&nbsp; [魔鬼在统治我们的世界](https://github.com/begood0513/mgztzwmdsj.md) 
 
 #### 大纪元新闻网 &nbsp;-&nbsp; [头条集锦](indexes/E头条集锦.md?t=08140216) &nbsp;|&nbsp; [港澳新闻](indexes/E港澳新闻.md?t=08140216)  &nbsp;|&nbsp; [大陆新闻](indexes/E大陆新闻.md?t=08140216) &nbsp;|&nbsp; [美国新闻](indexes/E美国新闻.md?t=08140216) &nbsp;|&nbsp; [国际新闻](indexes/E国际新闻.md?t=08140216) &nbsp;|&nbsp; [专栏文集](indexes/E专栏文集.md?t=08140216) &nbsp;|&nbsp; [纪元社论](indexes/E纪元社论.md?t=08140216) &nbsp;|&nbsp; [纪元特稿](indexes/E纪元特稿.md?t=08140216) 
 
