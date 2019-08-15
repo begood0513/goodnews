@@ -1,4 +1,4 @@
-####  经典图书 &nbsp;-&nbsp; [九评共产党](../../../../9ping.md?t=08151200/blob/master/README.md?t=08151200) &nbsp;|&nbsp; [解体党文化](../../../../jtdwh.md?t=08151200/blob/master/README.md?t=08151200)  &nbsp;|&nbsp; [共产主义的终极目的](../../../../gczydzjmd.md?t=08151200/blob/master/README.md?t=08151200) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../../mgztzwmdsj.md?t=08151200/blob/master/README.md?t=08151200) 
+####  [法轮功真相](../../../../basic/blob/master/README.md) &nbsp;-&nbsp; [九评共产党](../../../../9ping.md?t=08151200/blob/master/README.md?t=08151200) &nbsp;|&nbsp; [解体党文化](../../../../jtdwh.md?t=08151200/blob/master/README.md?t=08151200)  &nbsp;|&nbsp; [共产主义的终极目的](../../../../gczydzjmd.md?t=08151200/blob/master/README.md?t=08151200) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../../mgztzwmdsj.md?t=08151200/blob/master/README.md?t=08151200) 
 
 #### [不畏暴政 维权人士公开发声支持香港反送中](../pages/nf4514/n11452374.md?t=08151200) 
 
