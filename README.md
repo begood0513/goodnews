@@ -4,7 +4,7 @@
 
 #### 大纪元新闻网 &nbsp;-&nbsp; [头条集锦](indexes/E头条集锦.md?t=09101426) &nbsp;|&nbsp; [港澳新闻](indexes/E港澳新闻.md?t=09101426)  &nbsp;|&nbsp; [大陆新闻](indexes/E大陆新闻.md?t=09101426) &nbsp;|&nbsp; [美国新闻](indexes/E美国新闻.md?t=09101426) &nbsp;|&nbsp; [国际新闻](indexes/E国际新闻.md?t=09101426) &nbsp;|&nbsp; [专栏文集](indexes/E专栏文集.md?t=09101426) &nbsp;|&nbsp; [纪元社论](indexes/E纪元社论.md?t=09101426) &nbsp;|&nbsp; [纪元特稿](indexes/E纪元特稿.md?t=09101426) 
 
-#### 新唐人电视台 &nbsp;-&nbsp; [中国时局](indexes/N中国时局.md?t=09101426) &nbsp;|&nbsp; [共产党百年真相](indexes/N共产党百年真相.md?t=09101426) &nbsp;|&nbsp; [中共杀人历史](indexes/N中共杀人历史.md?t=09101426)  &nbsp;|&nbsp; [法轮功专题](indexes/N法轮功专题.md?t=09101426) &nbsp;|&nbsp; [文史漫步](indexes/N文史漫步.md?t=09101426) &nbsp;|&nbsp; [大陆新闻](indexes/N大陆新闻.md?t=09101426) &nbsp;|&nbsp; [美国新闻](indexes/N美国新闻.md?t=09101426)
+#### 新唐人电视台 &nbsp;-&nbsp; [中国时局](http://104.248.211.97:8000/gb/prog1138) &nbsp;|&nbsp; [共产党百年真相](http://104.248.211.97:8000/gb/prog1699) &nbsp;|&nbsp; [中共杀人历史](http://104.248.211.97:8000/gb/prog1695)  &nbsp;|&nbsp; [法轮功专题](http://104.248.211.97:8000/gb/prog1530) &nbsp;|&nbsp; [文史漫步](http://104.248.211.97:8000/gb/prog647) &nbsp;|&nbsp; [大陆新闻](http://104.248.211.97:8000/gb/prog204) &nbsp;|&nbsp; [美国新闻](http://104.248.211.97:8000/gb/prog203)
 
 #### 希望之声SOH &nbsp;-&nbsp; [热点追踪](indexes/H热点追踪.md?t=09101426) &nbsp;|&nbsp; [名家谈时事](indexes/H名家谈时事.md?t=09101426) &nbsp;|&nbsp; [个人评论](indexes/H个人评论.md?t=09101426)  &nbsp;|&nbsp; [红朝解密](indexes/H红朝解密.md?t=09101426) &nbsp;|&nbsp; [文化寻根](indexes/H文化寻根.md?t=09101426) &nbsp;|&nbsp; [大陆新闻](indexes/H大陆新闻.md?t=09101426) &nbsp;|&nbsp; [港台新闻](indexes/H港台新闻.md?t=09101426)
 
