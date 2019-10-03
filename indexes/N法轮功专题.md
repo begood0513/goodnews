@@ -4,7 +4,7 @@
 
 #### [十一国殇香港封城 法轮功集会促解体中共](../pages/prog1530/a102676602.md?t=10012126) 
 
-#### 推荐内容：[翻墙必看视频（文昭、江峰、法轮功、八九六四、香港反送中...）](https://github.com/gfw-breaker/banned-news/blob/master/pages/link.md)
+#### 推荐内容：[翻墙必看视频（YouTube热门频道、法轮功、维权律师、八九六四、香港反送中...）](https://github.com/gfw-breaker/banned-news/blob/master/pages/link.md)
 #### [抗议中共雇凶打人 法轮功学员中领馆集会](../pages/prog1530/a102676310.md?t=10012126) 
 
 #### [中共雇凶打伤香港法轮功学员 追查国际追查](../pages/prog1530/a102675745.md?t=10012126) 
