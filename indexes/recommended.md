@@ -1,2 +1,2 @@
 
-#### [ 一位中国人获全球称颂 3600项褒奖令中共胆寒](https://www.ntdtv.com/gb/2019/05/13/a102577520.html)
+#### [ 一位中国人获全球称颂 3600项褒奖令中共胆寒](https://github.com/begood0513/goodnews/blob/master/pages/../pages/recommended/a102577520.md)
