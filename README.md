@@ -1,4 +1,4 @@
-#### 编辑推荐文章  &nbsp;-&nbsp; [川普联大演讲：共产百年杀一亿人](pages/nsc412/n11608275.md) &nbsp;|&nbsp; [福克斯：幸存者披露中共活摘器官恐怖内幕](indexes/_编辑推荐文章.md) &nbsp;|&nbsp; [更多热点推荐](indexes/_编辑推荐文章.md) 
+#### 编辑推荐文章  &nbsp;-&nbsp; [震惊：中共是恐怖组织最大武器捐赠方](pages/nsc412/n11608275.md) &nbsp;|&nbsp; [福克斯：幸存者披露中共活摘器官内幕](indexes/_编辑推荐文章.md) &nbsp;|&nbsp; [更多热点推荐](indexes/_编辑推荐文章.md) 
 
 #### 翻墙必看内容 &nbsp;-&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=11010526) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=11010526) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=11010526)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=11010526) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=11010526) 
 
