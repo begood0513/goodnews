@@ -1,5 +1,5 @@
 #### 编辑推荐文章  &nbsp;-&nbsp;  [香港选举结果出炉：民主派389/60大胜亲共派](/pages/recommended/a102715052.md?t=11252326) &nbsp;|&nbsp;  [选举：香港香港警察警嫂齐倒戈！](/pages/recommended/a102715140.md?t=11252326) &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=11252326) 
-#### [天灭中共邪教  我要三退保平安（用化名退出共产党、退出共表团、退出少先队）](https://url.cn/5LMcuW2)
+#### [天灭中共邪教  我要三退保平安（用化名退出共产党、退出共表团、退出少先队）](tui/letter.md)
 
 #### 翻墙必看内容 &nbsp;-&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=11252326) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=11252326) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=11252326)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=11252326) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=11252326) 
 
