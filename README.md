@@ -1,3 +1,4 @@
+#### 编辑推荐文章  &nbsp;-&nbsp;  [谁在恐惧中颤抖：川普签署《香港人权与民主法案》](/pages/recommended/n11685770.md?t=11281439) &nbsp;|&nbsp;  [港人今夜狂欢 感恩节最好的礼物](/pages/recommended/a102717578.md?t=11281439)  
 ####  [内幕：习近平误判香港选情的两大原因](/pages/recommended/n11682489.md?t=11281439) &nbsp;|&nbsp;  [香港选举：香港警察警嫂齐倒戈](/pages/recommended/a102715140.md?t=11281439) 
 ####  [香港选举结果出炉：民主派389/60大胜亲共派](/pages/recommended/a102715052.md?t=11281439) &nbsp;|&nbsp;  [奇葩！天主教堂挂习近平像 取代圣母像](/pages/recommended/a102717540.md?t=11281439)  &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=11281439) 
 #### [天灭中共邪教  我要三退保平安（用化名退出共产党、退出共表团、退出少先队）](quit/letter.md)
