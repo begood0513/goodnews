@@ -2,7 +2,7 @@
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 
-<div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div><br/>
        
 <div align="center"><img  src="03.jpg"/><img  src="04.jpg"/> </div>    
 
