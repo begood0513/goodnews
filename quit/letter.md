@@ -4,7 +4,7 @@
 
 <div align=center><b><a href="confirmation.md"> * * * 我要三退 * * * </a></b></div><br/>
        
-<div align="center"><img  src="03.jpg"/><img  src="04.jpg"/> </div>    
+<div align="center"><img  src="03.jpg"/> &nbsp; <img  src="04.jpg"/> </div>    
 
 共产主义的鼻祖-马克思是一个撒旦教徒（详见《马克思成魔之路》），死后安葬于英国撒旦教墓地，撒旦教的教义就是毁灭全人类。“死后要见马克思”意指死后下地狱去陪它！    
 
