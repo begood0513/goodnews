@@ -1,7 +1,7 @@
 #### 编辑推荐文章  &nbsp;-&nbsp;  [中共内外交困 传习近平萌生退意](/pages/recommended/917110.md?t=12202352) &nbsp;|&nbsp;  [四大原因 北京被迫同意第一阶段贸易协议](/pages/recommended/n11731502.md?t=12202352)  
 #### &nbsp;&nbsp;&nbsp;&nbsp;  [“御用五毛”诉苦：母亲养老证遭收缴](/pages/recommended/a102732704.md?t=12202352) &nbsp;|&nbsp;  [深圳人：我们的生命如贱土](/pages/recommended/n11731162.md?t=12202352) 
 #### &nbsp;&nbsp;&nbsp;&nbsp;  [不惧中共打压 波特王蔡英文合拍第2部片发布](/pages/recommended/n11732995.md?t=12202352) &nbsp;|&nbsp;  [锦州银行原董事长试图逃美被拦截](/pages/recommended/n11733304.md?t=12202352)  &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=12202352) 
-#### &nbsp;&nbsp;&nbsp;&nbsp; [天灭中共邪教  我要三退保平安（用化名退出共产党、退出共表团、退出少先队）](quit/letter.md)
+#### &nbsp;&nbsp;&nbsp;&nbsp; [天灭中共  三退保平安（用化名退出共产党、退出共青团、退出少先队）](quit/letter.md)
 
 #### 翻墙必看内容 &nbsp;-&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=12202352) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=12202352) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=12202352)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=12202352) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=12202352) 
 
