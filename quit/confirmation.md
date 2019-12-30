@@ -3,3 +3,6 @@
 
 #### [声明退出共产党和共产党其它组织](http://157.245.225.82:10000/form/form.html)
 
+---
+
+####  [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md) 
