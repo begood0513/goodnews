@@ -5,4 +5,4 @@
 
 ---
 
-####  [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md) 
+####  每天都有不少民众自己或通过义工在大纪元退党网站声明退出党团队，其中不少人留下了切身的感言 ： [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md) 
