@@ -1,4 +1,4 @@
-<h1 class="title">惠虎宇：一个简单模型看穿武汉肺炎的实际死亡人数</h1>
+<h1 class="title">一个简单模型看穿武汉肺炎的实际死亡人数： 每天700人以上</h1>
 
 <img src="https://i.ntdtv.com/assets/uploads/2020/01/GettyImages-1196130123.jpg"/>
 
