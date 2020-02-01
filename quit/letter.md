@@ -1,11 +1,11 @@
 <div align=center><b>劝退信：人先自救，天再救之</b></div><br>
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
-
+<div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="http://t.cn/A6PN6IoW"> * * * 我要三退 * * * </a></b></div><br/>
        
 <div align="center"><img  src="03.jpg"/> &nbsp; <img  src="04.jpg"/> </div>    
-
+  
 “武汉瘟疫”来势汹汹，几十万人已被感染，可是邪党还在隐瞒疫情。大家都知道03年“非典”时，北京有个“小汤山医院”，中共说是救治“非典”的医院，其实绝大多数国人都不知道，绝大部分被送去“小汤山”的患者都没有被治疗，而是作为“非典”感染体被直接销毁，今天，对“武汉瘟疫”的处置也是这个模式，所以不能相信中共的承诺，历来相信中共承诺的人都会丢掉自己的性命！
 
 善良的民众不敢相信政府会这样对待自己。其实，共产主义的鼻祖-马克思是一个撒旦教徒（详见《马克思成魔之路》），死后安葬于英国撒旦教墓地，撒旦教的教义就是毁灭全人类。“死后要见马克思”意指死后下地狱去陪它！其建立的共产组织就是魔教，这个魔教直接开始实施对人类的毁灭，开始于1999年，那一年上天示警：美国太空总署的卫星拍到一张地球的照片，整个地球被一张魔鬼的面孔覆盖：
@@ -26,7 +26,7 @@
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 
 ---
-
+<div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="http://t.cn/A6PN6IoW"> * * * 我要三退 * * * </a></b></div>
 
 ---
@@ -44,7 +44,7 @@
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 
 ---
-
+<div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="http://t.cn/A6PN6IoW"> * * * 我要三退 * * * </a></b></div>
 
 ---
