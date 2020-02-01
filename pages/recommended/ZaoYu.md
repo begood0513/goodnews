@@ -1,4 +1,4 @@
-<h1>海外武汉人被中共派包机送疫区 被轰不怀好意</h1>
+<h1>相信中共的遭遇：海外武汉人被中共派包机送回武汉等死！</h1>
 									</div>
 				<div class="print_date">北京时间：<span>2020-02-01 10:27</span></div>
 										<div class="featured_image">
