@@ -8,17 +8,17 @@
 
 ### 三退专区
 
- ## &nbsp;&nbsp;&nbsp;&nbsp; [太紧急了❗️刘伯温说的人类的大瘟疫已经拉开序幕，武汉疫情迅速发展，请尽快点开这里，简单填即得到平安果🍎 無需重复📩](/quit/letter.md)
- ### &nbsp;&nbsp;&nbsp;&nbsp; [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md)
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [太紧急了❗️刘伯温说的人类的大瘟疫已经拉开序幕，武汉疫情迅速发展，请尽快点开这里，简单填即得到平安果🍎 無需重复📩](/quit/letter.md)
+ #### &nbsp;&nbsp;&nbsp;&nbsp; [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md)
 
 ###  视频专区
-### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/aitdshared/syncnews/blob/master/README.md)
+#### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/aitdshared/syncnews/blob/master/README.md)
 
-## 中共画皮专区
+### 中共画皮专区
 
- ### &nbsp;&nbsp;&nbsp;&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=02011213) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=02011213) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=02011213)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=02011213) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=02011213) 
+ #### &nbsp;&nbsp;&nbsp;&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=02011213) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=02011213) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=02011213)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=02011213) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=02011213) 
 
-## 同步新闻专区
+### 同步新闻专区
 
 #### &nbsp;&nbsp;&nbsp;&nbsp; 大纪元新闻网 &nbsp;-&nbsp; [头条集锦](indexes/E头条集锦.md?t=02011213) &nbsp;|&nbsp; [港澳新闻](indexes/E港澳新闻.md?t=02011213)  &nbsp;|&nbsp; [大陆新闻](indexes/E大陆新闻.md?t=02011213) &nbsp;|&nbsp; [美国新闻](indexes/E美国新闻.md?t=02011213) &nbsp;|&nbsp; [国际新闻](indexes/E国际新闻.md?t=02011213) &nbsp;|&nbsp; [专栏文集](indexes/E专栏文集.md?t=02011213) &nbsp;|&nbsp; [纪元社论](indexes/E纪元社论.md?t=02011213) &nbsp;|&nbsp; [纪元特稿](indexes/E纪元特稿.md?t=02011213) 
 
