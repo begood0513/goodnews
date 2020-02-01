@@ -12,7 +12,7 @@
  ### &nbsp;&nbsp;&nbsp;&nbsp; [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md)
 
 ##  视频专区
-### [你想看的视频都在这儿](https://github.com/aitdshared/syncnews/blob/master/README.md)
+### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频都在这儿,😉](https://github.com/aitdshared/syncnews/blob/master/README.md)
 
 ## 中共画皮专区
 
