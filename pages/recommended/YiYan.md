@@ -1,4 +1,4 @@
-<h1>湖北肺炎女孩留遗言 曝光医院隔离恐怖内幕</h1>
+<h1>湖北女孩留遗言 曝光所谓医院隔离就是不治疗任其死亡</h1>
 </div>
 <div class="print_date">北京时间：<span>2020-02-01 11:42</span>
 <figure><img alt="湖北肺炎女孩留遗言 曝光医院隔离恐怖内幕" src="https://i.ntdtv.com/assets/uploads/2020/02/be3a2c30e006eeddb17172ebd27de969-800x450.jpg"></figure></a>
