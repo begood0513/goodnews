@@ -1,3 +1,11 @@
-#### [ 🎬  翻墙必看视频（八九六四、法轮功、709大抓捕、香港反送中 ...）](https://github.com/gfw-breaker/banned-news1/blob/master/pages/link4.md)
+--2020-02-03 21:13:39--  https://raw.githubusercontent.com/begood0513/goodnews/a3c7b34856b5f5c6db9c40e1495ef59004ef84af/README.md
+Resolving raw.githubusercontent.com... 151.101.188.133
+Connecting to raw.githubusercontent.com|151.101.188.133|:443... connected.
+HTTP request sent, awaiting response... 200 OK
+Length: 5179 (5.1K) [text/plain]
+Saving to: “README.md.1”
 
-#### [ 💌  武汉肺炎来势凶凶， 如何自救：“不信一万就信万一”](https://github.com/begood0513/goodnews/blob/master/quit/letter.md)
+     0K .....                                                 100% 46.2M=0s
+
+2020-02-03 21:13:39 (46.2 MB/s) - “README.md.1” saved [5179/5179]
+
