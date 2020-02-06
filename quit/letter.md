@@ -27,7 +27,7 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="http://t.cn/A6PN6IoW"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="/quit/letter.md"> * * * 我要三退 * * * </a></b></div>
 
 ---
 <br/>
@@ -45,6 +45,6 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="http://t.cn/A6PN6IoW"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="/quit/letter.md"> * * * 我要三退 * * * </a></b></div>
 
 ---
