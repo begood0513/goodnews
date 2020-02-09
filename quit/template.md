@@ -15,7 +15,7 @@
 ### &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
 
 ##  视频专区
-### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/aitdshared/syncnews/blob/master/README.md)
+### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/begood0513/goodnews/blob/master/quit/videos.md)
 
 ## 中共画皮专区
 
