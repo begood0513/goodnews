@@ -1,4 +1,9 @@
-# <font color="#dd0000">最新新闻及疫情时刻更新，欢迎广传，请一起推广、做种。5大专区，传播真相，为中国尽一份力，因为只有真相能救中国!</font>
+# <font color="#dd0000">最新新闻及疫情时刻更新，欢迎广传，请一起推广、做种。5大专区，传播真相，为中国尽一份力，因为只有真相能救中国!本页面短网址 https://git.io/gnews</font>
+
+## 自救专区
+
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [太紧急了❗️刘伯温说的人类的大瘟疫已经拉开序幕，武汉疫情迅速发展，请尽快点开这里，简单填即得到平安果🍎 無需重复📩](/quit/letter.md)
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md)
 
 ## 推荐文章专区
 
@@ -7,17 +12,10 @@
 ### &nbsp;&nbsp;&nbsp;&nbsp;   recomm5 &nbsp;|&nbsp;   recomm6  
 ### &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
 
-
-## 三退专区
-
- ### &nbsp;&nbsp;&nbsp;&nbsp; [太紧急了❗️刘伯温说的人类的大瘟疫已经拉开序幕，武汉疫情迅速发展，请尽快点开这里，简单填即得到平安果🍎 無需重复📩](/quit/letter.md)
- ### &nbsp;&nbsp;&nbsp;&nbsp; [每日三退声明精选](https://github.com/gfw-breaker/tuidang/blob/master/README.md)
-
 ##  视频专区
 ### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/aitdshared/syncnews/blob/master/README.md)
 
 ## 中共画皮专区
-
 
  ### &nbsp;&nbsp;&nbsp;&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=02032102) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=02032102) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=02032102)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=02032102) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=02032102) 
 
