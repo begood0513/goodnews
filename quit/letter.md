@@ -2,7 +2,7 @@
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://xlife.casa/oo.aspx?name=ogQuit.aspx&key=anxedgeeqtuahwex&from=David&tag=81315537"> * * * 我要三退 * * * </a></b></div><br/>
+<div align=center><b><a href="https://xboot.casa/oo.aspx?name=ogQuit.aspx&key=anxedgeeqtuahwex&from=alanDavid&tag=30308887"> * * * 我要三退 * * * </a></b></div><br/>
        
 <div align="center"><img  src="03.jpg"/> &nbsp; <img  src="04.jpg"/> </div>    
 
@@ -32,7 +32,7 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://xlife.casa/oo.aspx?name=ogQuit.aspx&key=anxedgeeqtuahwex&from=David&tag=81315537"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="https://xboot.casa/oo.aspx?name=ogQuit.aspx&key=anxedgeeqtuahwex&from=alanDavid&tag=30308887"> * * * 我要三退 * * * </a></b></div>
 
 ---
 <br/>
@@ -50,6 +50,6 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://xlife.casa/oo.aspx?name=ogQuit.aspx&key=anxedgeeqtuahwex&from=David&tag=81315537"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="https://xboot.casa/oo.aspx?name=ogQuit.aspx&key=anxedgeeqtuahwex&from=alanDavid&tag=30308887"> * * * 我要三退 * * * </a></b></div>
 
 ---
