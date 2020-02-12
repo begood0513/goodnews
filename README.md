@@ -7,11 +7,11 @@
 
 ## 推荐文章专区
 
-### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉瘟疫的根源：“天灭中共” 每个中国人都必须面对的生死抉择！！](/pages/recommended/a102773561.md?t=02130013) &nbsp;|&nbsp;    [常忍：武汉肺炎的神奇解方](/pages/recommended/n11853413.md?t=02130013)
-### &nbsp;&nbsp;&nbsp;&nbsp;    [天才女预言家：2020年世界将上演善恶大决战](/pages/recommended/922633.md?t=02130013) &nbsp;|&nbsp;    [大纪元报导救了我的命 可大陆人在干什么?](/pages/recommended/n11862181.md?t=02130013)
-### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉疫情有多严重？业界曝工厂正赶制百万尸袋](/pages/recommended/a102775027.md?t=02130013) &nbsp;|&nbsp;    [借瘟疫之名：广、深紧急立法 政府可征用私产](/pages/recommended/a102774948.md?t=02130013)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉疫情恶化 继封城之后开始“封网”](/pages/recommended/a102775029.md?t=02130013) &nbsp;|&nbsp;    [疫情重创大陆经济 大批企业将倒闭](/pages/recommended/n11861767.md?t=02130013)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [多地现“无症状感染者”专家：2秒也能传染](/pages/recommended/n11861604.md?t=02130013) &nbsp;|&nbsp;    [2万医护驰援武汉 知情医生:全国精英恐有去无回](/pages/recommended/a102774980.md?t=02130013)   
+### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉瘟疫的根源：“天灭中共” 每个中国人都必须面对的生死抉择！！](/pages/recommended/a102773561.md?t=02130026) &nbsp;|&nbsp;    [常忍：武汉肺炎的神奇解方](/pages/recommended/n11853413.md?t=02130026)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [天才女预言家：2020年世界将上演善恶大决战](/pages/recommended/922633.md?t=02130026) &nbsp;|&nbsp;    [大纪元报导救了我的命 可大陆人在干什么?](/pages/recommended/n11862181.md?t=02130026)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉疫情有多严重？业界曝工厂正赶制百万尸袋](/pages/recommended/a102775027.md?t=02130026) &nbsp;|&nbsp;    [借瘟疫之名：广、深紧急立法 政府可征用私产](/pages/recommended/a102774948.md?t=02130026)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉疫情恶化 继封城之后开始“封网”](/pages/recommended/a102775029.md?t=02130026) &nbsp;|&nbsp;    [疫情重创大陆经济 大批企业将倒闭](/pages/recommended/n11861767.md?t=02130026)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [多地现“无症状感染者”专家：2秒也能传染](/pages/recommended/n11861604.md?t=02130026) &nbsp;|&nbsp;    [2万医护驰援武汉 知情医生:全国精英恐有去无回](/pages/recommended/a102774980.md?t=02130026)   
 ### &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
 
 ##  视频专区
@@ -19,17 +19,17 @@
 
 ## 中共画皮专区
 
- ### &nbsp;&nbsp;&nbsp;&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=02130013) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=02130013) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=02130013)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=02130013) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=02130013) 
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [法轮功真相](../../../basic/blob/master/README.md?t=02130026) &nbsp;|&nbsp; [九评共产党](../../../9ping.md/blob/master/README.md?t=02130026) &nbsp;|&nbsp; [解体党文化](../../../jtdwh.md/blob/master/README.md?t=02130026)  &nbsp;|&nbsp; [共产主义的终极目的](../../../gczydzjmd.md/blob/master/README.md?t=02130026) &nbsp;|&nbsp; [魔鬼在统治我们的世界](../../../mgztzwmdsj.md/blob/master/README.md?t=02130026) 
 
 ## 同步新闻专区
 
-### &nbsp;&nbsp;&nbsp;&nbsp; 大纪元新闻网 &nbsp;-&nbsp; [头条集锦](indexes/E头条集锦.md?t=02130013) &nbsp;|&nbsp; [港澳新闻](indexes/E港澳新闻.md?t=02130013)  &nbsp;|&nbsp; [大陆新闻](indexes/E大陆新闻.md?t=02130013) &nbsp;|&nbsp; [美国新闻](indexes/E美国新闻.md?t=02130013) &nbsp;|&nbsp; [国际新闻](indexes/E国际新闻.md?t=02130013) &nbsp;|&nbsp; [专栏文集](indexes/E专栏文集.md?t=02130013) &nbsp;|&nbsp; [纪元社论](indexes/E纪元社论.md?t=02130013) &nbsp;|&nbsp; [纪元特稿](indexes/E纪元特稿.md?t=02130013) 
+### &nbsp;&nbsp;&nbsp;&nbsp; 大纪元新闻网 &nbsp;-&nbsp; [头条集锦](indexes/E头条集锦.md?t=02130026) &nbsp;|&nbsp; [港澳新闻](indexes/E港澳新闻.md?t=02130026)  &nbsp;|&nbsp; [大陆新闻](indexes/E大陆新闻.md?t=02130026) &nbsp;|&nbsp; [美国新闻](indexes/E美国新闻.md?t=02130026) &nbsp;|&nbsp; [国际新闻](indexes/E国际新闻.md?t=02130026) &nbsp;|&nbsp; [专栏文集](indexes/E专栏文集.md?t=02130026) &nbsp;|&nbsp; [纪元社论](indexes/E纪元社论.md?t=02130026) &nbsp;|&nbsp; [纪元特稿](indexes/E纪元特稿.md?t=02130026) 
 
-### &nbsp;&nbsp;&nbsp;&nbsp; 新唐人电视台 &nbsp;-&nbsp; [中国时局](indexes/N中国时局.md?t=02130013) &nbsp;|&nbsp; [共产党百年真相](indexes/N共产党百年真相.md?t=02130013) &nbsp;|&nbsp; [中共杀人历史](indexes/N中共杀人历史.md?t=02130013)  &nbsp;|&nbsp; [法轮功专题](indexes/N法轮功专题.md?t=02130013) &nbsp;|&nbsp; [文史漫步](indexes/N文史漫步.md?t=02130013) &nbsp;|&nbsp; [大陆新闻](indexes/N大陆新闻.md?t=02130013) &nbsp;|&nbsp; [美国新闻](indexes/N美国新闻.md?t=02130013)
+### &nbsp;&nbsp;&nbsp;&nbsp; 新唐人电视台 &nbsp;-&nbsp; [中国时局](indexes/N中国时局.md?t=02130026) &nbsp;|&nbsp; [共产党百年真相](indexes/N共产党百年真相.md?t=02130026) &nbsp;|&nbsp; [中共杀人历史](indexes/N中共杀人历史.md?t=02130026)  &nbsp;|&nbsp; [法轮功专题](indexes/N法轮功专题.md?t=02130026) &nbsp;|&nbsp; [文史漫步](indexes/N文史漫步.md?t=02130026) &nbsp;|&nbsp; [大陆新闻](indexes/N大陆新闻.md?t=02130026) &nbsp;|&nbsp; [美国新闻](indexes/N美国新闻.md?t=02130026)
 
-### &nbsp;&nbsp;&nbsp;&nbsp; 希望之声SOH &nbsp;-&nbsp; [热点追踪](indexes/H热点追踪.md?t=02130013) &nbsp;|&nbsp; [名家谈时事](indexes/H名家谈时事.md?t=02130013) &nbsp;|&nbsp; [个人评论](indexes/H个人评论.md?t=02130013)  &nbsp;|&nbsp; [红朝解密](indexes/H红朝解密.md?t=02130013) &nbsp;|&nbsp; [文化寻根](indexes/H文化寻根.md?t=02130013) &nbsp;|&nbsp; [大陆新闻](indexes/H大陆新闻.md?t=02130013) &nbsp;|&nbsp; [港台新闻](indexes/H港台新闻.md?t=02130013)
+### &nbsp;&nbsp;&nbsp;&nbsp; 希望之声SOH &nbsp;-&nbsp; [热点追踪](indexes/H热点追踪.md?t=02130026) &nbsp;|&nbsp; [名家谈时事](indexes/H名家谈时事.md?t=02130026) &nbsp;|&nbsp; [个人评论](indexes/H个人评论.md?t=02130026)  &nbsp;|&nbsp; [红朝解密](indexes/H红朝解密.md?t=02130026) &nbsp;|&nbsp; [文化寻根](indexes/H文化寻根.md?t=02130026) &nbsp;|&nbsp; [大陆新闻](indexes/H大陆新闻.md?t=02130026) &nbsp;|&nbsp; [港台新闻](indexes/H港台新闻.md?t=02130026)
 
-### &nbsp;&nbsp;&nbsp;&nbsp; 看中国新闻网 &nbsp;-&nbsp; [看大陆](indexes/S看大陆.md?t=02130013) &nbsp;|&nbsp; [看官场](indexes/S看官场.md?t=02130013) &nbsp;|&nbsp; [看民生](indexes/S看民生.md?t=02130013)  &nbsp;|&nbsp; [看博谈](indexes/S看博谈.md?t=02130013) &nbsp;|&nbsp; [看财经](indexes/S看财经.md?t=02130013) &nbsp;|&nbsp; [看史海](indexes/S看史海.md?t=02130013) &nbsp;|&nbsp; [看文化](indexes/S看文化.md?t=02130013) &nbsp;|&nbsp; [看生活](indexes/S看生活.md?t=02130013) &nbsp;|&nbsp; [看世界](indexes/S看世界.md?t=02130013)
+### &nbsp;&nbsp;&nbsp;&nbsp; 看中国新闻网 &nbsp;-&nbsp; [看大陆](indexes/S看大陆.md?t=02130026) &nbsp;|&nbsp; [看官场](indexes/S看官场.md?t=02130026) &nbsp;|&nbsp; [看民生](indexes/S看民生.md?t=02130026)  &nbsp;|&nbsp; [看博谈](indexes/S看博谈.md?t=02130026) &nbsp;|&nbsp; [看财经](indexes/S看财经.md?t=02130026) &nbsp;|&nbsp; [看史海](indexes/S看史海.md?t=02130026) &nbsp;|&nbsp; [看文化](indexes/S看文化.md?t=02130026) &nbsp;|&nbsp; [看生活](indexes/S看生活.md?t=02130026) &nbsp;|&nbsp; [看世界](indexes/S看世界.md?t=02130026)
 
 
 #### 在浏览器中输入短网址 或使用微信、支付宝等二维码工具扫描二维码打开页面, 点击右上角"...", 在弹出菜单中点击“在浏览器打开”； 若网页被举报禁止访问，请点击“恢复申请访问”，将链接复制并粘贴到浏览器中打开（请不要使用QQ或360浏览器）
