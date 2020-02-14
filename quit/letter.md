@@ -1,4 +1,4 @@
-<div align=center><b>大难来时如何自救：别与魔鬼为伍！赶快自救，天必救之</b></div><br/>
+<div align=center><b>大难来时如何自救：别为魔鬼作陪葬！赶快自救，天必救之</b></div><br/>
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 <div align=center>请点击下面的“我要三退”</div>
