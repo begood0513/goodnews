@@ -1,5 +1,5 @@
-## [在线直播看这里](https://github.com/gfw-breaker/banned-news1/blob/master/pages/link4.md)
-## BT播放软件下载看这里（自动更新最新视频边下边看）:
+## [1. 在线直播点这里](https://github.com/gfw-breaker/banned-news1/blob/master/pages/link4.md)
+## 2. BT播放软件下载看这里（自动更新最新视频边下边看）:
 ### Windows版免翻墙下载地址 https://is.gd/wtwinse 下载后双击执行WebTorrentSE.exe
 ### Mac苹果电脑版免翻墙下载地址 https://is.gd/wtmacsetup 下载后双击执行WebTorrentMac.dmg，按提示将WebTorrent拖入Applications文件夹
 如出现防火墙弹窗请允许，不用另外下载种子，等待几秒至几分钟就会有视频自动下载，等待缓冲至10%即可点击右侧播放按钮观看，如有新视频也会自动更新，无需翻墙。
