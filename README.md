@@ -32,7 +32,7 @@
 
 ### &nbsp;&nbsp;&nbsp;&nbsp; 看中国新闻网 &nbsp;-&nbsp; [看大陆](indexes/S看大陆.md?t=02231339) &nbsp;|&nbsp; [看官场](indexes/S看官场.md?t=02231339) &nbsp;|&nbsp; [看民生](indexes/S看民生.md?t=02231339)  &nbsp;|&nbsp; [看博谈](indexes/S看博谈.md?t=02231339) &nbsp;|&nbsp; [看财经](indexes/S看财经.md?t=02231339) &nbsp;|&nbsp; [看史海](indexes/S看史海.md?t=02231339) &nbsp;|&nbsp; [看文化](indexes/S看文化.md?t=02231339) &nbsp;|&nbsp; [看生活](indexes/S看生活.md?t=02231339) &nbsp;|&nbsp; [看世界](indexes/S看世界.md?t=02231339)
 
-#### 微信群
+### 微信群
 <div align="center"><img  src="/quit/WhatsApp Image 2020-02-21 at 02.09.58.jpeg"/></div>
 <br>  
 #### 在浏览器中输入短网址 或使用微信、支付宝等二维码工具扫描二维码打开页面, 点击右上角"...", 在弹出菜单中点击“在浏览器打开”； 若网页被举报禁止访问，请点击“恢复申请访问”，将链接复制并粘贴到浏览器中打开（请不要使用QQ或360浏览器）
