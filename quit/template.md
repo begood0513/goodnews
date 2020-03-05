@@ -1,5 +1,13 @@
 # <font color="#dd0000">最新新闻及疫情时刻更新，欢迎广传，请一起推广、做种。5大专区，传播真相，为中国尽一份力，因为只有真相能救中国! 本页面短网址 https://git.io/gnews</font>
 
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;前面左拐
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我不是中共人
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;瘟神您别进错门
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;前面左拐是支部
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;快到那儿去显能
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;——编者随笔
+
+
 ## 自救专区
 
  ### &nbsp;&nbsp;&nbsp;&nbsp; [太紧急了❗️ 武汉疫情迅速发展，请尽快点开这里，赶快自救，保的平安🍎 無需重复📩](/quit/letter.md)
@@ -37,5 +45,5 @@
 
 <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/1.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/2.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/3.png" width="260px"/>&nbsp;
 
-####联系邮箱：begood0513@gmail.com，在联系不上的时候，可以用hotmail向这个邮箱发信
+#### 联系邮箱：begood0513@gmail.com，在联系不上的时候，可以用hotmail向这个邮箱发信
 
