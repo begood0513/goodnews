@@ -1,11 +1,42 @@
 # <font color="#dd0000">最新新闻及疫情时刻更新，欢迎广传，请一起推广、做种。5大专区，传播真相，为中国尽一份力，因为只有真相能救中国! 本页面短网址 https://git.io/gnews</font>
 
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;共产病毒的告白
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我叫共产病毒</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>撒旦命我来收割它的信徒</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我从武汉来到东土</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>党团队员都是我的猎物</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>别徒劳反抗</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>你们早已发誓：</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>在最后的时刻向魔王献出一切</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我来要求履行“合同”</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>快献上你们的生命和灵魂</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我还要赶去西方</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>那里也有魔王的信徒</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;一编者随笔<br/>
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如何自救
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>朋友您别埋怨</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>天灾人祸老天长眼</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>百年红祸，一亿冤魂</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>怨气满神州</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>受害者一直向众神呐喊：</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>严惩中共及帮凶</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>您是它的一员或认同者</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>当然为其背罪责</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>如何自救：</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>“三退”保平安</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>“亲共”下地狱</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>看您选哪边</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;一编者随笔<br/>
+
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我已“三退”
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我不再是中共的人</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>瘟神您别进错门</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>前面左拐是支部</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>快到那儿去显能</b><br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;——编者随笔
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;一编者随笔
 
 
 ## 自救专区
@@ -15,13 +46,13 @@
 
 ## 推荐文章专区
 
-### &nbsp;&nbsp;&nbsp;&nbsp;    [从历代皇帝的“罪己诏” 看共产恶党的邪恶](/pages/recommended/402014.md?t=03081502) &nbsp;|&nbsp;    [柏林墙倒塌之前　没人相信它会倒塌](/pages/recommended/402076.md?t=03081502)
-### &nbsp;&nbsp;&nbsp;&nbsp;    [欲摆脱瘟疫 先远离红魔](/pages/recommended/a102774026.md?t=03081502) &nbsp;|&nbsp;    [预言中避免“大灾难”和“大瘟疫”的秘诀](/pages/recommended/925007.md?t=03081502)
-### &nbsp;&nbsp;&nbsp;&nbsp;    [湖北染疫狱警为何退党并感谢法轮功](/pages/recommended/a102791659.md?t=03081502) &nbsp;|&nbsp;    [路德曝美国已掌握病毒证据 中共军管P4实验室是为销毁证据](/pages/recommended/922597.md?t=03081502)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [新一批中共恶人名单递美加英澳新五国政府](/pages/recommended/n11922727.md?t=03081502) &nbsp;|&nbsp;    [蓬佩奥触中共大忌：武汉肺炎病毒来自中国](/pages/recommended/a102794055.md?t=03081502)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [【珍言真语】袁弥昌：媚共国家政权或变天](/pages/recommended/n11923199.md?t=03081502) &nbsp;|&nbsp;    [揭秘中共军事技术：“制脑权”和基因攻击](/pages/recommended/a102794483.md?t=03081502)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉下令“感恩党” 网友怒吼：毫无人性](/pages/recommended/a102794082.md?t=03081502) &nbsp;|&nbsp;    [重磅：传东部战区兵变动用火箭炮 战机坠落天津](/pages/recommended/a102793795.md?t=03081502) 
-### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉肺移植的深刻背景：血债帮吹响号角 习近平面临的生死抉择](/pages/recommended/a102793595.md?t=03081502) &nbsp;|&nbsp;    [隔离点生活非官方宣传 病人打电话要饭吃](/pages/recommended/n11921264.md?t=03081502)  &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [从历代皇帝的“罪己诏” 看共产恶党的邪恶](/pages/recommended/402014.md?t=03081516) &nbsp;|&nbsp;    [柏林墙倒塌之前　没人相信它会倒塌](/pages/recommended/402076.md?t=03081516)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [欲摆脱瘟疫 先远离红魔](/pages/recommended/a102774026.md?t=03081516) &nbsp;|&nbsp;    [预言中避免“大灾难”和“大瘟疫”的秘诀](/pages/recommended/925007.md?t=03081516)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [湖北染疫狱警为何退党并感谢法轮功](/pages/recommended/a102791659.md?t=03081516) &nbsp;|&nbsp;    [路德曝美国已掌握病毒证据 中共军管P4实验室是为销毁证据](/pages/recommended/922597.md?t=03081516)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [新一批中共恶人名单递美加英澳新五国政府](/pages/recommended/n11922727.md?t=03081516) &nbsp;|&nbsp;    [蓬佩奥触中共大忌：武汉肺炎病毒来自中国](/pages/recommended/a102794055.md?t=03081516)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [【珍言真语】袁弥昌：媚共国家政权或变天](/pages/recommended/n11923199.md?t=03081516) &nbsp;|&nbsp;    [揭秘中共军事技术：“制脑权”和基因攻击](/pages/recommended/a102794483.md?t=03081516)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉下令“感恩党” 网友怒吼：毫无人性](/pages/recommended/a102794082.md?t=03081516) &nbsp;|&nbsp;    [重磅：传东部战区兵变动用火箭炮 战机坠落天津](/pages/recommended/a102793795.md?t=03081516) 
+### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉肺移植的深刻背景：血债帮吹响号角 习近平面临的生死抉择](/pages/recommended/a102793595.md?t=03081516) &nbsp;|&nbsp;    [隔离点生活非官方宣传 病人打电话要饭吃](/pages/recommended/n11921264.md?t=03081516)  &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
 
 ##  视频专区
 ### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/begood0513/goodnews/blob/master/quit/videos.md)
