@@ -1,8 +1,8 @@
 # <font color="#dd0000">最新新闻及疫情时刻更新，欢迎广传，请一起推广、做种。5大专区，传播真相，为中国尽一份力，因为只有真相能救中国! 本页面短网址 https://git.io/gnews</font>
 
-#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;共产病毒的告白
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;中共病毒的告白
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我叫共产病毒</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我叫中共病毒</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>撒旦命我来收割它的信徒</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我从武汉来到东土</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>党团队员都是我的猎物</b><br/>
@@ -34,7 +34,7 @@
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;我已“三退”
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>我不再是中共的人</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>瘟神您别进错门</b><br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>前面左拐是支部</b><br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>前面左拐是党部</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<b>快到那儿去显能</b><br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;一编者随笔
 
@@ -46,13 +46,13 @@
 
 ## 推荐文章专区
 
-### &nbsp;&nbsp;&nbsp;&nbsp;    [【特稿】武汉病毒针对共产党而来](/pages/recommended/n11928818.md?t=03201431) &nbsp;|&nbsp;    [共党员大量死亡名单曝光 死因惊人一致](/pages/recommended/a102801373.md?t=03201431)
-### &nbsp;&nbsp;&nbsp;&nbsp;    [桓宇：各国武肺疫情轻重 与其亲共程度成正比](/pages/recommended/a102796539.md?t=03201431) &nbsp;|&nbsp;    [为何这些国家疫情特严重？以色列宗教学者道出玄机](/pages/recommended/925764.md?t=03201431)
-### &nbsp;&nbsp;&nbsp;&nbsp;    [港抗疫显奇迹 天灭中共成保命符](/pages/recommended/n11942593.md?t=03201431) &nbsp;|&nbsp;    [港风水师：武汉瘟疫击灭中共 杀九留一 与之割席方留命](/pages/recommended/926243.md?t=03201431)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [路德曝美国已掌握病毒证据 中共军管P4实验室是为销毁证据](/pages/recommended/922597.md?t=03201431) &nbsp;|&nbsp;    [你补贴了吗？看看各国政府都有哪些疫情补贴措施](/pages/recommended/a102800824.md?t=03201431)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [美推法案调查中共隐瞒疫情 美国人起诉中共政府](/pages/recommended/a102800995.md?t=03201431) &nbsp;|&nbsp;    [“回国避疫”和“中国式撤侨”的真相](/pages/recommended/n11943372.md?t=03201431)  
-### &nbsp;&nbsp;&nbsp;&nbsp;    [那些曾为同胞扫货买口罩的海外华人 看完这些你心寒了吗？](/pages/recommended/926484.md?t=03201431) &nbsp;|&nbsp;    [集中营: 武汉再建四周围电网的新方舱医院](/pages/recommended/n11942656.md?t=03201431) 
-### &nbsp;&nbsp;&nbsp;&nbsp;    [武汉医生揭中共关闭方舱内幕：政治任务](/pages/recommended/n11943071.md?t=03201431) &nbsp;|&nbsp;    [随笔：后瘟疫时代的地球](/pages/recommended/926515.md?t=03201431)  &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [【特稿】武汉病毒针对共产党而来](/pages/recommended/n11928818.md?t=03201502) &nbsp;|&nbsp;    [共党员大量死亡名单曝光 死因惊人一致](/pages/recommended/a102801373.md?t=03201502)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [桓宇：各国武肺疫情轻重 与其亲共程度成正比](/pages/recommended/a102796539.md?t=03201502) &nbsp;|&nbsp;    [为何这些国家疫情特严重？以色列宗教学者道出玄机](/pages/recommended/925764.md?t=03201502)
+### &nbsp;&nbsp;&nbsp;&nbsp;    [港抗疫显奇迹 天灭中共成保命符](/pages/recommended/n11942593.md?t=03201502) &nbsp;|&nbsp;    [港风水师：武汉瘟疫击灭中共 杀九留一 与之割席方留命](/pages/recommended/926243.md?t=03201502)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [路德曝美国已掌握病毒证据 中共军管P4实验室是为销毁证据](/pages/recommended/922597.md?t=03201502) &nbsp;|&nbsp;    [你补贴了吗？看看各国政府都有哪些疫情补贴措施](/pages/recommended/a102800824.md?t=03201502)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [川普批评中共隐瞒疫情 让世界付出巨大代价](/pages/recommended/n11955296.md?t=03201502) &nbsp;|&nbsp;    [人均1000美元: 抗中共病毒 白宫将于三周内向美家庭发补助](/pages/recommended/a102803835.md?t=03201502)  
+### &nbsp;&nbsp;&nbsp;&nbsp;    [大陆网络流传的一份死亡名单 引关注](/pages/recommended/n11953667.md?t=03201502) &nbsp;|&nbsp;    [李文亮调查结果出炉难平民愤 当局狂删帖](/pages/recommended/n11954584.md?t=03201502) 
+### &nbsp;&nbsp;&nbsp;&nbsp;    [美中关系全面恶化 学者:只差一步关使馆](/pages/recommended/a102803752.md?t=03201502) &nbsp;|&nbsp;    [受骗回国的回国留学生 在上海隔离点跳楼亡](/pages/recommended/a102804041.md?t=03201502)  &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
 
 ##  视频专区
 ### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/begood0513/goodnews/blob/master/quit/videos.md)
