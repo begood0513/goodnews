@@ -41,6 +41,7 @@
 
 ## 自救专区
 
+ ### &nbsp;&nbsp;&nbsp;&nbsp; 昨天中共迫害法轮功、异见人士、活摘人体器官，您也许觉得无动于衷，今天中共制造中共病毒（武汉肺炎），您是否受害？别再和这个魔鬼为伍，“三退”一定会成为您一生中最明智的选择！
  ### &nbsp;&nbsp;&nbsp;&nbsp; [【“三退”自救】太紧急了❗️ 武汉疫情迅速发展，请尽快点开这里，赶快自救，保的平安🍎 无需重复📩](/quit/letter.md)
  ### &nbsp;&nbsp;&nbsp;&nbsp; [每日自救选播](https://github.com/gfw-breaker/tuidang/blob/master/README.md)
 
