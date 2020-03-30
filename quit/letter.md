@@ -1,4 +1,4 @@
-<div align=center><b>大难来时如何自救：别为魔鬼作陪葬！赶快自救，天必救之</b></div><br/>
+<div align=center><b>瘟疫针对中共及亲共者而来，别为中共作陪葬！赶快自救，“三退”保平安</b></div><br/>
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 <div align=center>请点击下面的“我要三退”</div>
