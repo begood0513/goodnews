@@ -1,0 +1,27 @@
+name: Sync Fork
+
+on:
+  schedule:
+    - cron: '20 */8 * * *'      # every 8 hours
+  workflow_dispatch:          # on button click
+
+jobs:
+  sync_with_upstream:
+    runs-on: ubuntu-latest
+    name: Sync upstream 
+
+    steps:
+    - name: Checkout master
+      uses: actions/checkout@v2
+      with:
+        ref: master
+        
+    - name: Pull upstream 
+      id: sync
+      uses: aormsby/Fork-Sync-With-Upstream-action@v2.2
+      with:
+        upstream_repository: begood0513/goodnews
+        upstream_branch: master
+        target_branch: master
+
+
