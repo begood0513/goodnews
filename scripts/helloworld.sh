@@ -1,6 +1,6 @@
 #!/bin/bash
 
-newip=136.244.71.35
+newip=95.179.192.143
 
 ip=$(cat macros.py | grep "site_base_url =" | awk -F'/' '{print $3}' | cut -d':' -f1)
 
