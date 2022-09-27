@@ -59,7 +59,7 @@ while read line; do
 	key=$(echo $line | cut -d',' -f1)
 	name=$(echo $line | cut -d',' -f2)
 	sed -n '1,6p' ../indexes/$key.md > tmp.md
-	echo "#### [油管热门频道 翻墙必看视频 新闻](http://136.244.67.144:81/youtube.html?$tt)" >> tmp.md
+	echo "#### [油管热门频道 翻墙必看视频 新闻](http://209.250.226.216:81/youtube.html?$tt)" >> tmp.md
 	sed -n '6,$p' ../indexes/$key.md >> tmp.md
 	echo "<img src='http://gfw-breaker.win/goodnews/indexes/$key.md' width='0px' height='0px'/>" >> tmp.md
 	mv tmp.md ../indexes/$name.md
@@ -79,7 +79,7 @@ while read line; do
 done < /root/page_count/goodnews.hot
 
 sed -n '1,4p' $hot_page > tmp.md
-echo "#### [油管热门频道 翻墙必看视频 新闻](http://136.244.67.144:81/youtube.html?$tt)" >> tmp.md
+echo "#### [油管热门频道 翻墙必看视频 新闻](http://209.250.226.216:81/youtube.html?$tt)" >> tmp.md
 sed -n '5,$p' $hot_page >> tmp.md
 mv tmp.md $hot_page
 
