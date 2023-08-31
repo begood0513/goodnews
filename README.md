@@ -1,4 +1,4 @@
-# <font color="#dd0000">最新新闻及疫情时刻更新，欢迎广传，请一起推广、做种。5大专区，传播真相，为中国尽一份力，因为只有真相能救中国! 本页面短网址 https://git.io/gnews</font>
+# <font color="#dd0000">最新新闻，欢迎广传。5大专区，传播真相，为中国尽一份力，因为只有真相能救中国! 
 
 ## 推荐文章专区
 ### &nbsp;&nbsp;&nbsp;&nbsp;   鉴于微信会屏蔽本项目内容，请朋友[使用浏览器打开并收藏此项目](quit/browser.md?t=07032011)
@@ -9,9 +9,6 @@
 ### &nbsp;&nbsp;&nbsp;&nbsp;    [上万富人盼移民 中国或面临“人财两失”](/pages/recommended/n13784281.md?t=07032011) &nbsp;|&nbsp;    [疑影射习近平 上海名记者为“知了”诗检讨](/pages/recommended/n13782351.md?t=07032011)  
 ### &nbsp;&nbsp;&nbsp;&nbsp;    [中国青年失业率飙高 官称“摩擦性失业”惹议](/pages/recommended/n13783417.md?t=07032011) &nbsp;|&nbsp;    [大陆专家：烂尾楼停贷潮恐引发灾难性后果](/pages/recommended/n13781577.md?t=07032011) 
 ### &nbsp;&nbsp;&nbsp;&nbsp;    [陕西上千人围银保监 停贷烂尾楼增至235案](/pages/recommended/n13781579.md?t=07032011) &nbsp;|&nbsp;    [曝光广东华兴银行“取不出钱” 券商顾问被捕](/pages/recommended/n13781855.md?t=07032011)  &nbsp;|&nbsp; [>> 更多 <<](indexes/_编辑推荐文章.md?ts=02011213)
-
-##  视频专区
-### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉](https://github.com/begood0513/goodnews/blob/master/quit/videos.md)
 
 ## 中共画皮专区
 
